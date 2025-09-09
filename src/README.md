@@ -1,0 +1,1 @@
+Tu eres fuerte y poderosa eres vida y amor superacion
